@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Evernote for macOS integration with Evernote for macOS updated Integration - task automation and widgets. Featuring task automation and widgets, it's the best
 
 
 
